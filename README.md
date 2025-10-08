@@ -1,0 +1,1 @@
+A Fish In Sea is my child project that I've developed over the last 1.5 years. Initially I found whatever art I could from the public domain off the bat, but now my girlfriend makes really awesome art for it!!! It's taken quite some time and so many hours, but I'm officially releasing the game on the App Store very very soon!!!
